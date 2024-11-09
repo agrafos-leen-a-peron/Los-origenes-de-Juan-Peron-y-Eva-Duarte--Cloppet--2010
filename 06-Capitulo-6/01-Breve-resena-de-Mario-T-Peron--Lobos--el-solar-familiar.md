@@ -1,7 +1,7 @@
 # 01 - Breve reseña de Mario T. Perón. Lobos, el solar familiar
 
 Don Mario T. Perón (1867-1928) fue hijo del doctor Tomás L. Perón y de Dominga Dutey. 
-Según lo que narraron los historia- dores y, por lo tanto, divulgado desde antaño, habría nacido en la ciudad de Buenos Aires el 9 de noviembre del año 1867, en una finca ubicada en la intersección de las calles céntricas de Corrientes y Libertad.
+Según lo que narraron los historiadores y, por lo tanto, divulgado desde antaño, habría nacido en la ciudad de Buenos Aires el 9 de noviembre del año 1867, en una finca ubicada en la intersección de las calles céntricas de Corrientes y Libertad.
 
 Esta versión no resiste mayor análisis y ha quedado totalmente descartada, a partir de los documentos descubiertos y reproducidos a lo largo de estas páginas, ya que la realidad de los hechos es absolutamente diferente. 
 Mario T. Perón nació en Buenos Aires el 27 de noviembre de 1867. 
