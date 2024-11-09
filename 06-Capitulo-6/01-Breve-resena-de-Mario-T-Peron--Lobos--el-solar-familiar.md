@@ -10,11 +10,15 @@ Sin perjuicio de lo expresado respec- to de las circunstancias del bautismo y po
 Hacia el año 1888, cuando tenía veinte (20) años de edad aproximadamente, fue nombrado Juez de Paz en la ciudad de La Plata, y luego se trasladó a la localidad de Lobos con el mismo cargo. 
 Allí se asoció para explotar y adquirir un campo con un antiguo amigo y compañero de estudios de su padre, el doctor Eulogio del Mármol, que había sido, además, intendente de Lobos.
 
-En dicho pueblo, en la finca de la calle Buenos Aires 1380 cieron sus tres (3) únicos hijos: Avelino Mario (1891), Juan Do mingo335 (1895) y Alberto Perón Sosa (1899) -que murió al poco tiempo de nacer, por lo que la historia prácticamente no lo tiene en cuenta, en la finca de la calle Buenos Aires 1380. Este solar en cun rancho que existía en el interior de un lote, porque el fremme de la casa fue levantado posteriormente por sus dueños (la famili Moore Sinnet).
+En dicho pueblo, en la finca de la calle Buenos Aires 1380 nacieron sus tres (3) únicos hijos: Avelino Mario (1891), Juan Domingo (1895) y Alberto Perón Sosa (1899) -que murió al poco tiempo de nacer, por lo que la historia prácticamente no lo tiene en cuenta, en la finca de la calle Buenos Aires 1380. 
+Este solar era un rancho que existía en el interior de un lote, porque el frente de la casa fue levantado posteriormente por sus dueños (la familia Moore Sinnet).
 
-En ese lugar transcurrieron los primeros años des nidad y convivencia con la progenitora y madre de sus hijos, su amada Juana Sosa Toledo. Esta mujer había nacido en el año 1875 y fallecido en Comodoro Rivadavia, Provincia del Chubut, el sá bado 30 de mayo de 1953. Era la hija mayor de los criollos Juan Ireneo Sosa, 336 nacido en Santiago del Estero, puestero del campo arrendado a Olegario Piñeiro, y Mercedes Toledo y Gauna, que habría nacido alrededor del año 1853.337 su pater
+En ese lugar transcurrieron los primeros años de su paternidad y convivencia con la progenitora y madre de sus hijos, su amada Juana Sosa Toledo. 
+Esta mujer había nacido en el año 1875 y fallecido en Comodoro Rivadavia, Provincia del Chubut, el sábado 30 de mayo de 1953. 
+Era la hija mayor de los criollos Juan Ireneo Sosa, nacido en Santiago del Estero, puestero del campo arrendado a Olegario Piñeiro, y Mercedes Toledo y Gauna, que habría nacido alrededor del año 1853.
 
-Existe un dato inédito y, por ende, no conocido, el cual va a confirmar que los nacimientos de los tres (3) niños Perón fueron en Lobos, en los años indicados. El mismo se desprende del tes timonio de la señora Cipriana Gómez de Osuna, vecina del men cionado pueblo, quien asistió a los tres (3) partos de Juana Sosa, acaecidos en el domicilio mencionado más arriba.
+Existe un dato inédito y, por ende, no conocido, el cual va a confirmar que los nacimientos de los tres (3) niños Perón fueron en Lobos, en los años indicados. 
+El mismo se desprende del tes timonio de la señora Cipriana Gómez de Osuna, vecina del men cionado pueblo, quien asistió a los tres (3) partos de Juana Sosa, acaecidos en el domicilio mencionado más arriba.
 Dicho testimonio oral llega a mis oídos a través de la señora Jorgelina Gómez de Etchevers, residente en la localidad de Uribelarrea, Provincia de Buenos Aires, y sobrina de la señora Cipriana Gómez de Osuna. 
 Esta señora había nacido en Buenos Aires en el año 1871; estaba formalmente casada (matrimonio celebrado hacia el año 1890) con el señor Carlos Ozuna, nacido en la República Orico 1890) Uruguay en el año 1861, de ocupación labrador, o sea que poseía una chacra o quinta de su propiedad. 
 Habían tenido cuatro (4) hijas todas nacidas en Buenos Aires: Isidora, Juana, Elena y Eufemia Ozuna.
