@@ -10,7 +10,7 @@ Sin perjuicio de lo expresado respecto de las circunstancias del bautismo y post
 Hacia el año 1888, cuando tenía veinte (20) años de edad aproximadamente, fue nombrado Juez de Paz en la ciudad de La Plata, y luego se trasladó a la localidad de Lobos con el mismo cargo. 
 Allí se asoció para explotar y adquirir un campo con un antiguo amigo y compañero de estudios de su padre, el doctor Eulogio del Mármol, que había sido, además, intendente de Lobos.
 
-En dicho pueblo, en la finca de la calle Buenos Aires 1380 nacieron sus tres (3) únicos hijos: Avelino Mario (1891), Juan Domingo (1895) y Alberto Perón Sosa (1899) -que murió al poco tiempo de nacer, por lo que la historia prácticamente no lo tiene en cuenta, en la finca de la calle Buenos Aires 1380. 
+En dicho pueblo, en la finca de la calle Buenos Aires 1380 nacieron sus tres (3) únicos hijos: Avelino Mario (1891), Juan Domingo (1895) y Alberto Perón Sosa (1899) -que murió al poco tiempo de nacer, por lo que la historia prácticamente no lo tiene en cuenta-, en la finca de la calle Buenos Aires 1380. 
 Este solar era un rancho que existía en el interior de un lote, porque el frente de la casa fue levantado posteriormente por sus dueños (la familia Moore Sinnet).
 
 En ese lugar transcurrieron los primeros años de su paternidad y convivencia con la progenitora y madre de sus hijos, su amada Juana Sosa Toledo. 
@@ -18,7 +18,7 @@ Esta mujer había nacido en el año 1875 y fallecido en Comodoro Rivadavia, Prov
 Era la hija mayor de los criollos Juan Ireneo Sosa, nacido en Santiago del Estero, puestero del campo arrendado a Olegario Piñeiro, y Mercedes Toledo y Gauna, que habría nacido alrededor del año 1853.
 
 Existe un dato inédito y, por ende, no conocido, el cual va a confirmar que los nacimientos de los tres (3) niños Perón fueron en Lobos, en los años indicados. 
-El mismo se desprende del tes timonio de la señora Cipriana Gómez de Osuna, vecina del men cionado pueblo, quien asistió a los tres (3) partos de Juana Sosa, acaecidos en el domicilio mencionado más arriba.
+El mismo se desprende del tes timonio de la señora Cipriana Gómez de Osuna, vecina del mencionado pueblo, quien asistió a los tres (3) partos de Juana Sosa, acaecidos en el domicilio mencionado más arriba.
 Dicho testimonio oral llega a mis oídos a través de la señora Jorgelina Gómez de Etchevers, residente en la localidad de Uribelarrea, Provincia de Buenos Aires, y sobrina de la señora Cipriana Gómez de Osuna. 
 Esta señora había nacido en Buenos Aires en el año 1871; estaba formalmente casada (matrimonio celebrado hacia el año 1890) con el señor Carlos Ozuna, nacido en la República Orico 1890) Uruguay en el año 1861, de ocupación labrador, o sea que poseía una chacra o quinta de su propiedad. 
 Habían tenido cuatro (4) hijas todas nacidas en Buenos Aires: Isidora, Juana, Elena y Eufemia Ozuna.
@@ -30,11 +30,15 @@ Su familia permaneció en la casa de su madre Dominga Dutey de Perón, sita en l
 Luego, por estricta presión e influencia de Doña Dominga para que su hijo se pusiera en orden con la moral, la religión y las buenas costumbres -pues su padre ya había fallecido-, Mario T. Perón y Juana Sosa se casaron en la ciudad de Buenos Aires, el día 25 de septiembre de 1901. 
 Esta decisión de normalizar la vida de su hijo Mario Tomás habla muy bien de Dominga Dutey, pues nadie mejor que ella podía dar fe de sus tristes experiencias de vida a lo largo de tantos años, donde tuvo que padecer el trago amargo de vivir al margen de la ley y las buenas costumbres por largo tiempo.
 
-Posteriormente, Mario Tomás se trasladó al sur del país, más precisamente a las localidades de Puerto Camarones, Río Chico y Cabo Raso. En la localidad de Camarones tuvo dos estancias: "El Porvenir" y "La Maciega". Hacia 1908 ocupó nuevas tierras en el paraje Piedra Cuadrada, en el sudeste del departamento de Paso de los Indios, sobre el límite del departamento Escalante, distante a ciento setenta y cinco (175) kilómetros de Comodoro Rivadante donde consiguió arrendarlas por medio de un decreto presiden cial del 25 de septiembre de 1925.339
+Posteriormente, Mario Tomás se trasladó al sur del país, más precisamente a las localidades de Puerto Camarones, Río Chico y Cabo Raso. 
+En la localidad de Camarones tuvo dos estancias: "El Porvenir" y "La Maciega". 
+Hacia 1908 ocupó nuevas tierras en el paraje Piedra Cuadrada, en el sudeste del departamento de Paso de los Indios, sobre el límite del departamento Escalante, distante a ciento setenta y cinco (175) kilómetros de Comodoro Rivadante donde consiguió arrendarlas por medio de un decreto presidencial del 25 de septiembre de 1925.
 
 Sus dos (2) hijos habían quedado en Buenos Aires. Mario Ave. lino había sido anotado en el Colegio Mariano Moreno y Juan Do mingo, con seis (6) años, iniciaría sus estudios primarios pero, por los avatares de la vida, en octubre de 1901 volvería nuevamente con sus padres al sur del país.
 
-Transcurría el año 1904, cuando el niño Juan Domingo -que contaba con nueve (9) años de edad- fue nuevamente traído por sus padres a Buenos Aires, para ponerlo bajo la férula de su abue- la, Dominga Dutey de Perón, y de sus dos (2) hijas nacidas de su primer matrimonio con Miguel Martirena, Doñas María Baldo- mera y Dionisia Vicenta Martirena Dutey, 340 quienes gravitaron en su educación y carácter. El niño se incorporó a la Escuela N° 1 General San Martín, donde vivió junto a sus dos (2) tías hasta su ingreso en el Colegio Militar en marzo de 1911.
+Transcurría el año 1904, cuando el niño Juan Domingo -que contaba con nueve (9) años de edad- fue nuevamente traído por sus padres a Buenos Aires, 
+para ponerlo bajo la férula de su abuela, Dominga Dutey de Perón, y de sus dos (2) hijas nacidas de su primer matrimonio con Miguel Martirena, Doñas María Baldomera y Dionisia Vicenta Martirena Dutey, quienes gravitaron en su educación y carácter. 
+El niño se incorporó a la Escuela N° 1 General San Martín, donde vivió junto a sus dos (2) tías hasta su ingreso en el Colegio Militar en marzo de 1911.
 
 No tengo dudas de que Juan D. Perón recibió de estas tres (3) mujeres (su abuela paterna y sus dos tías) una formación especial, de tradición entrañablemente europea y de base matriarcal. 
 Las tres no solo lo prepararon en las primeras armas de la educación básica y elemental, sino que, además, lo forjaron en la etapa de la adolescencia e hicieron todo lo que estaba a su alcance para que pudiera rendir un más que aceptable examen de ingreso en el Colegio Militar de la Nación. 
