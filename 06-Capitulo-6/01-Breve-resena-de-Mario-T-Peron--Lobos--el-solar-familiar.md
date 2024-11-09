@@ -5,7 +5,7 @@ Según lo que narraron los historiadores y, por lo tanto, divulgado desde antañ
 
 Esta versión no resiste mayor análisis y ha quedado totalmente descartada, a partir de los documentos descubiertos y reproducidos a lo largo de estas páginas, ya que la realidad de los hechos es absolutamente diferente. 
 Mario T. Perón nació en Buenos Aires el 27 de noviembre de 1867. 
-Sin perjuicio de lo expresado respec- to de las circunstancias del bautismo y posterior reconocimiento como hijo natural de Tomás L. Perón, haremos una breve reseña de su vida.
+Sin perjuicio de lo expresado respecto de las circunstancias del bautismo y posterior reconocimiento como hijo natural de Tomás L. Perón, haremos una breve reseña de su vida.
 
 Hacia el año 1888, cuando tenía veinte (20) años de edad aproximadamente, fue nombrado Juez de Paz en la ciudad de La Plata, y luego se trasladó a la localidad de Lobos con el mismo cargo. 
 Allí se asoció para explotar y adquirir un campo con un antiguo amigo y compañero de estudios de su padre, el doctor Eulogio del Mármol, que había sido, además, intendente de Lobos.
